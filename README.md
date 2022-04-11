@@ -2,5 +2,3 @@
 sanaol
 
 bakal na kamo!
-
-siram sana
